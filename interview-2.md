@@ -380,3 +380,5 @@ If you’re preparing:
 ---
 
 **This is what modern interviews look like. Be ready. 🚀**
+
+video - youtube.com/watch?v=QvgNssz9-0s
